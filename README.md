@@ -14,7 +14,7 @@
  𝙃𝙤𝙥𝙚 𝙮𝙤𝙪 𝙛𝙚𝙚𝙡 𝙚𝙣𝙟𝙤𝙮 𝙩𝙤 𝙪𝙨𝙚 𝙩𝙝𝙞𝙨
 
 Click the download word to install this apk
-[𝘿𝙤𝙬𝙣𝙡𝙤𝙖𝙙](https://drive.google.com/file/d/1-s4WFIoZAnwapUi_g5ayvh8hlqMQAR0b/view?usp=drivesdk)
+[𝘿𝙤𝙬𝙣𝙡𝙤𝙖𝙙](https://apkadmin.com/va0bwq8m3qvz/DR4G0N_SMS_BOOMBER_base.apk.html)
 
 <p align="center"><img src="https://l.top4top.io/p_2645qbd0v0.jpg">
 <p align="center"><img src="https://a.top4top.io/p_2645fda1l1.jpg">
